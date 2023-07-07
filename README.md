@@ -1,1 +1,0 @@
-# Analysis-of-the-Collapse-of-Lehman-Brothers-in-the-2007-Financial-Crisis.
